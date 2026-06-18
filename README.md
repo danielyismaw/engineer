@@ -1,1 +1,1 @@
-AI Powered Web Application Developer
+AI Powered Full StsckWeb Application Developer
